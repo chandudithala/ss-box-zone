@@ -1,1 +1,1 @@
-# chandudithala.ssboxzone.github.io
+# ssboxzone.github.io
